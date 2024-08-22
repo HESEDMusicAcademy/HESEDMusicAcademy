@@ -1,11 +1,14 @@
-👋 Xin chào, tôi là @HESEDMusicAcademy
+HESED Music Academy - Nơi Âm Nhạc Chạm Đến Trái Tim
 
-👀 Tôi quan tâm đến việc chia sẻ vẻ đẹp của âm nhạc với mọi người và xây dựng một cộng đồng nơi tình yêu, sự nhân từ và sáng tạo hòa quyện qua từng giai điệu.
+🎼 Tại HESED Music Academy, chúng tôi cung cấp các khóa học âm nhạc chuyên nghiệp như: Piano, Organ, Guitar, Ukulele, Đàn T’Rưng, Thanh Nhạc, và luyện thanh trình diễn. Dù bạn là người mới bắt đầu hay muốn nâng cao kỹ năng, chúng tôi đều có những khóa học phù hợp cho bạn.
 
-🌱 Hiện tại, tôi đang giảng dạy các khóa học âm nhạc đa dạng, bao gồm nhạc lý cơ bản, đào tạo nhạc cụ (piano, guitar, violin,...), luyện thanh và trình diễn chuyên nghiệp.
+✨ Với phương châm "Âm nhạc chạm đến trái tim", HESED không chỉ giúp học viên phát triển tài năng mà còn mang đến niềm vui và sự kết nối với âm nhạc.
 
-💞️ Tôi đang tìm kiếm cơ hội hợp tác trong các sự kiện âm nhạc, hội thảo và các dự án cộng đồng nhằm kết nối mọi người thông qua sức mạnh của âm nhạc.
+🔥 Ưu đãi đặc biệt: Trong tháng khai trương, học viên đăng ký sớm sẽ nhận được nhiều ưu đãi hấp dẫn!
 
-📫 Liên hệ với tôi qua: Bạn có thể gọi đến hotline của chúng tôi tại +84868476625.
+📍 Địa chỉ: 59/12 đường 49, khu phố 6, Hiệp Bình Chánh, TP Thủ Đức
+📞 Hotline: +84 868 476 625
+
+Hãy đến và trải nghiệm không gian âm nhạc đầy cảm hứng tại HESED Music Academy!
 
 
